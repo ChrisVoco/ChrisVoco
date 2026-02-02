@@ -1,2 +1,2 @@
 ## GRAAAAAAAAAAAAAAAGAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAS!!!!!!!!!
-![Picture oF GRAGAS][(https://www.reddit.com/media?url=https%3A%2F%2Fpreview.redd.it%2Fsaatzy7qyii51.jpg%3Fwidth%3D550%26format%3Dpjpg%26auto%3Dwebp%26s%3D354ff8693de3eb1fb832847ac63a278d576b5c38)](https://www.lolvvv.com/_next/image?url=https%3A%2F%2Fddragon.leagueoflegends.com%2Fcdn%2Fimg%2Fchampion%2Fsplash%2FGragas_2.jpg&w=1200&q=75](https://www.veryicon.com/icons/game/league-of-legends-gold-border/gragas.html)]
+![Picture oF GRAGAS](https://media.sketchfab.com/models/8c9c3f7d226642fcad7c343fa22b730b/thumbnails/331b11b715aa49f79165e7db51a0b902/0a6ea845bbca4b9199faa32cf4d39cf4.jpeg)
